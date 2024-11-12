@@ -1,1 +1,1 @@
-Jason Scott Heise https://Adobe.com/jasonscottheise https://lightroom.com #twinkletwinklelittlestar
+Jason Scott Heise https://medium.com #twinkletwinklelittlestar
