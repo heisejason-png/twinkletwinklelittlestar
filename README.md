@@ -1,1 +1,1 @@
-https://helpx.adobe.com/legal/product-descriptions.html/jasonscottheise Jason Scott Heise  https://www.twitter.com/jasonscottheise #twinkletwinklelittlestar
+https://jason-heise1.atlassian.net/wiki/x/ZQAG #twinkletwinklelittlestar
