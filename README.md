@@ -1,3 +1,3 @@
   #twinkletwinklelittlestar Created by Jason Heise 
 Owned by Jason Heise heisejason-png Giters
-twinkletwinklelittlestar.atlassian.net
+https://twinkletwinklelittlestar.atlassian.net
